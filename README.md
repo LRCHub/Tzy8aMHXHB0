@@ -1,0 +1,82 @@
+# UVERworld – PHOENIX
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+BORN
+PHOENIX!!
+Keep on Right on こりゃ最高
+良いぞ完成を前に BOM
+いっそもっと才能開花
+We go よっしゃ けしかけるか
+地球ごと丸ごと乗りこなす
+カウボウイ
+まさにもう鬼に金棒行けるでしょ
+チング why?
+絶唱、、、
+絶唱、、、
+舐めてかかるならば曝け出し
+今から君達の目を占領
+誕生の日々も酷なり
+幾度のOverkillを越え
+Let's go奈落の敗北の残り火から
+期待通り未体験な勝利景色に誘う
+Ladies and Gentlemen
+We are the legends,
+born for overkill
+This moment is ours
+We are the legends,
+born for overkill
+この俺が
+I'm フェニックス
+灰の中から創造 フェニックス
+破壊の果て再生 フェニックス
+I'm フェニックス
+永遠に飛び続ける フェニックス
+This moment is ours
+I'm フェニックス
+燃え尽きた先の炎 フェニックス
+破壊の果て再生 フェニックス
+永遠に飛び続ける フェニックス
+破壊の果て再生 フェニックス
+BORN
+旅人から KING
+生き様語る SING
+解放の音鳴らす
+この命無限に響く
+絶唱、、、
+お前の壁は不死鳥の如し
+ちゃちなメッキは無い
+トドメ刺せない亡霊だ
+覚悟決めて来い
+This moment is ours
+We are the legends,
+born for overkill
+この俺が
+I'm フェニックス
+灰の中から創造 フェニックス
+破壊の果て再生 フェニックス
+I'm フェニックス
+永遠に飛び続ける フェニックス
+This moment is ours
+I'm PHOENIX
+Rising reborn PHOENIX
+Born From Flame PHOENIX
+ナヌン フェニックスダ
+ヨンウォニ ナルゲチッハヌン
+フェニックスダ
+This moment is ours
+I'm フェニックス
+灰の中から創造 フェニックス
+破壊の果て再生 フェニックス
+I'm フェニックス
+永遠に飛び続ける フェニックス
+This moment is ours
+I'm PHOENIX
+Rising reborn PHOENIX
+Born From Flame PHOENIX
+ナヌン フェニックスダ
+ヨンウォニ ナルゲチッハヌン
+フェニックスダ
+BORN
+```
